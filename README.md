@@ -4,5 +4,5 @@
 - 🌱 eu costumo ver videos no youtube
 - 💞️ eu estudo no colégio marechal rondon
 --->
-edenilson/eddelas 
+edenilson/eddelas é um aluno muito bom quando o assunto se trata da tecnologia
 --->
